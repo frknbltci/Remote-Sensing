@@ -1,0 +1,1 @@
+Bandların yolları bozulmuş olabilir,düzeltip inceleyebilirsiniz.
